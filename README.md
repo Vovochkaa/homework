@@ -3,5 +3,5 @@
 2. В дальнейшем планирую стать *"SENIOR"*
 3. Есть хобби , очень нравятся ковырятся в технике 
 4. так же планирую доработать свою машину 
-5. [https://top-tuning.ru/upload/images/news/1607/2.jpg]
+5. !(link to the photo) [https://autotuni.ru/uploads/posts/2014-12/thumbs/1418138656_wald-audi-a5-1.jpg]
 6. 
